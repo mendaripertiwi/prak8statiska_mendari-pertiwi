@@ -1,0 +1,1 @@
+# prak8statiska_mendari-pertiwi
